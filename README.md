@@ -7,5 +7,5 @@ I'll be slowly updating this list the more I make skins. I'll also be adding ski
 # [maomao](https://gofile.io/d/6vcYzd3O)
 ![](https://moeko123.s-ul.eu/t1j2lTqe)
 
-# [whypan zekk-tette (NSFW)](https://gofile.io/d/IEWPgip2)
+<!-- # [whypan zekk-tette (NSFW)](https://gofile.io/d/IEWPgip2)
 ![](https://moeko123.s-ul.eu/HO03nCnk)
